@@ -1,1 +1,1 @@
-Hello, World and New Country! welcome to Canada
+Hello, class welcome to Ontario Canada
